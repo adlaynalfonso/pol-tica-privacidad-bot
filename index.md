@@ -8,6 +8,6 @@ Solo se recopilan:
 - Números de teléfono del remitente
 - Mensajes enviados voluntariamente
 
-Para más información, contáctanos al correo: [tu-email@email.com].
+Para más información, contáctanos al correo: [adlaynalfonso@icloud.com]
 
 Última actualización: julio 2025.
